@@ -1,7 +1,7 @@
 Coding skills latest links for my  ///  https://discord.gg/HcazNW3P >>>gambling bot like 1xbet 
-https://discord.gg/vttnqd8sj >>> watch latest shows & news of latest cinema shows & theatres
-https://discord.gg/uEu7wVf7V >>>available jobs recruitments 
-https://discord.gg/BmCeKNE2t >>> latest global news , 
+https://discord.gg/vDyB2dBm >>> watch latest shows & news of latest cinema shows & theatres
+https://discord.gg/rE8b9wPA >>>available jobs recruitments 
+https://discord.gg/wb4zuqZ7 >>> latest global news , 
 
 cinema bot and on beta version llm for economic operations /coding like chatgpt
 writing economic book , about crisis ,history , latest metholodgies >>>> in the repoistary of ELKomy the document of the book 
